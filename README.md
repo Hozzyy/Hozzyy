@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hozzyy
+- 👀 I’m interested in Minecraft Servers etc
+- 🌱 I’m currently learning Tryin to learn java
+- 💞️ I’m looking to collaborate on IDK
+- 📫 How to reach me PHozzy#0530 Discord
